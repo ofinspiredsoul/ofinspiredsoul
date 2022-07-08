@@ -1,6 +1,6 @@
 👋 Hi, I’m Alina<br />
+🌱 👩🏻‍💻 I’m constantly growing my skills in the UX/UI Design area.<br />
 📸 🌍 I deeply enjoy photography and travelling.<br />
-🌱 🎨 I’m constantly growing my skills in the UX/UI Design area.<br />
 🎯 I would love to collaborate on interesting design projects.<br />
 🇵🇱🇬🇧 Polish / English<br />
 
