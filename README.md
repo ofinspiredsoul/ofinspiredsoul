@@ -1,4 +1,4 @@
-👋 Hi, I’m Alina<br />
+👋🏻 Hi, I’m Alina<br />
 👩🏻‍💻 Senior Product Designer from 🇵🇱<br />
 📸 Photographer & Traveller · 27 countries 🗺️<br />
 🌍 Motivational Speaker Alumna<br />
